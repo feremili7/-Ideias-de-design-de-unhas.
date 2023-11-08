@@ -1,4 +1,4 @@
-                         Desing de unhas.
+Desing de unhas.
 
 #Ideias das mais simples para as mais complexas.
 #Unhas decoradas.   
